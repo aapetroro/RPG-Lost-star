@@ -1,4 +1,10 @@
 # RPG-Lost-star
+AMANDA PETRORO DA SILVA
+AMANDA RAUGUST FERREIRA
+LETICIA DE FATIMA SIERRA BUGIN
+LUIZA DE SOUZA CORDES
+MATHEUS PLANA SALES LOPES
+
 
 Gênero(s): RPG, Aventura, Ação e Puzzle;
 Tema(s): Bom Trama, Atmosférico, Fofo, Fantasia, Relaxante e Sombrio;
